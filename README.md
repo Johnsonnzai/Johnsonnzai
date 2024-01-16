@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Johnsonnzai
 - 👀 I’m interested in codding
-- 🌱 I’m currently learning programming
+- 🌱 I’m currently a programmer 
 - 💞️ I’m looking to collaborate on out coming projects
 - 📫 How to reach me on +25425129657 or @ johnsonnruwa@gmail.com
 
